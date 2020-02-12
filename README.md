@@ -1,1 +1,0 @@
-# adamrossz1986.github.io
